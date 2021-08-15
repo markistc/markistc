@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @markistc
+- 👀 I’m interested in building a video game.
+- 🌱 I’m currently learning nothing. Doing this myself.
+- 💞️ I’m looking to collaborate on nothing at the moment. Not until I know what I'm doing. Lol
+- 📫 How to reach me... yeah, don't?
